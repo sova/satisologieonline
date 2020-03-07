@@ -5,5 +5,10 @@ Master Japanese with Japanese Complete.
 
 ### SATISOLOGIE: OF LIMITED AND UNLIMITED RESOURCES
 
-```infinite wants and finite resources
+Unlimited Wants, Limited Resources
 
+Unlimited Wants, Unlimited Resources
+
+Limited Wants, Limited Resources
+
+Limited Wants, Unlimited Resources
